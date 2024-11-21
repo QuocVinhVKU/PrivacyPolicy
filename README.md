@@ -5,7 +5,7 @@ Privacy Policy: ZinhPixry
 
 Publisher: ZinhPixry
 
-Store Play: [https://play.google.com/store/apps/developer?id=Phuket+INC](https://play.google.com/store/apps/developer?id=Zinh+Pixry)
+Store Play: [https://play.google.com/store/apps/developer?id=Zinh+Pixry](https://play.google.com/store/apps/developer?id=Zinh+Pixry)
 
 
 ZinhPixry built the free game. This service is provided by ZinhPixry at no cost and is intended for use as is.
