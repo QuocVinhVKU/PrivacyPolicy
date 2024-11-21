@@ -55,7 +55,7 @@ These Services do not address anyone under the age of 13. We do not knowingly co
 Changes to This Privacy Policy
 We may update our Privacy Policy from time to time. Thus, you are advised to review this page periodically for any changes. We will notify you of any changes by posting the new Privacy Policy on this page.
 
-This policy is effective as of 2022-08-03.
+This policy is effective as of 2024-11.
 
 Contact Us
 If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us dangquocvinh02112001@gmail.com
