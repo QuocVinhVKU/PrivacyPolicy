@@ -56,4 +56,4 @@ We may update our Privacy Policy from time to time. Thus, you are advised to rev
 This policy is effective as of 2024-11.
 
 Contact Us
-If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us dangquocvinh02112001@gmail.com
+If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us dqvinh@zinhpixry.website
